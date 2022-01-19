@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Stevelopes
+- 👋 Hi, I’m Steven Lopes
 
 - 👀 I’m interested in building user friendly websites, spending quality time with my family and golf.
 
